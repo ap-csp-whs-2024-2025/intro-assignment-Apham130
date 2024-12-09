@@ -13,3 +13,7 @@ Answer the questions below
 * Something interesting about me is
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
+
+I'm reading Journey to the West.
+How are you?
+Jazz Band, Steel Drum Band, Indoor Drumline
